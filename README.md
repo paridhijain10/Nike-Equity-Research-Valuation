@@ -1,4 +1,4 @@
-# Nike, Inc. — Equity Research & Valuation
+# Nike, Inc. Equity Research & Valuation
 
 ## Overview
 
